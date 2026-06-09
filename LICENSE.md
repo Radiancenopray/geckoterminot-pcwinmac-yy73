@@ -1,4 +1,4 @@
-# 
+# مميز geckoterminal sniper bot سكريبتات لـ Mac OS | خفيف geckoterminal sniper bot سكريبتات لـ PC Windows. مع التحكم في الانزلاق و معالجة الإلغاء — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
